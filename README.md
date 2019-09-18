@@ -45,4 +45,10 @@ entrée offerte au théatro 1 fois par mois vestiaire compris. :+1:
 #### Je suis pas d'ici
 * ducoup je cherche des bons plans je compte sur vous merci
 
+### Aux alentours de bordeaux 
+
+le rocher palmer à cenon:https://www.lerocherdepalmer.fr
+
+####
+
 
